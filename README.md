@@ -1,2 +1,2 @@
-# Nova-Market-place
-https://youtube.com/shorts/gHW4qp1gQXM?is=DakNfbRaK6FWV-kL
+
+Crypto Joker" on platforms like X or Telegram generally provide market commentary, meme coin updates, or affiliate links rather than functioning as regulated, audited custodial exchange platforms
